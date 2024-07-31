@@ -2,13 +2,14 @@
 ATMXYZ
 DIGITAL.DOME.INSERT...RULESET(forever):::
 ^^^TRY to use website...when avail?
+believe.what.u.can??
 
 - 👋 Hi, I’m scott!  :::@scttd84.smix
 - 👀 I’m interested in ... sharing,contracts,conflicts,configs.
 - 🌱 I’m currently learning ... how to build a space ship and pack it for long hauls!
-- 💞️ I’m looking to collaborate on ... see above
+- 💞️ I’m looking to collaborate on ... see above and to add... ([{hatch}]) activation and creation.
 - 📫 How to reach me ... directly on github pref *(mostly no;;; however-->)
-- 😄 Pronouns: ... 
+- 😄 Pronouns: ... he him
 - ⚡ Fun fact: ... electricity is real
 
 <!---
