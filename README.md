@@ -1,7 +1,12 @@
 ^^scott:::ABOVE:::IT:::ALL
+
 ATMXYZ
 DIGITAL.DOME.INSERT...RULESET(forever):::
+
 ^^^TRY to use website...when avail?
+^^^TRY to use website...when avail?
+^^^TRY to use website...when avail?
+
 believe.what.u.can??
 
 - 👋 Hi, I’m scott!  :::@scttd84.smix
@@ -29,12 +34,36 @@ makes ascii art
 overall goal right now:::
 pop bubble of heartinabox777... expand to other repositories.
 
+-->smix.bubble.pop.ascii<--
+    - mask ascii banner to warn merge!!!
+        ascii banner via text reduc
+    - solo log create and reduce to 1 file
+
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 wow strategy RIGHTNOW:::
-st 
+COMPLETED TIER QUESTLINE... game over
+ony complete
+mc/ony farm!!!
+
+mc/ony
+herbin
+==================================================================================
+st over 
 herbin
 11th --> patch
 
 =================================================================================
+scotta.scottb.scottc.scottd...
+0.1.2.3.4.5.6.7.8.9.10.11.12.13.14.15.16.17.18.19.20
+21.22.23.24.25.26.27.28.29.30.31.32.33.34.35.36.37.38.39.40
+41.42.43.44.45.46.47.48.49.50.51.52.53.54.55.56.57.58.59.60
+61.62.63.64.65.66.67.68.69.70.71.72.73.74.75.76.77.78.79.80
+81.82.83.84
+scottxxx.scottxyz...
+
+
 CODEX 
 CODEX 
 CODEX
@@ -221,7 +250,16 @@ they don't even know how its going to happen
 spiderman///devil horns look similar... create a mask site maybe?????
 right now i am over landed... cant set anything down or write anywhere
 matter of organization affeccting what can be output!!!
-^^^
+all u people who think ur gonna pop out are gonna get popped for sure.
+ekg was normal today... still getting weird tests for no reason!
+they took mad men away just to bring it back later
+i bet people will love it... but i do have two versions of that memory..
+808s and heart break... demon dayz... pretty 00s of me :)
+hey yo metro ..........................
+
+
+heard a song on the radio... operator
+^^^ 
 ^^^
 ^^^
 ^^^
