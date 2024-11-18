@@ -1,6 +1,10 @@
 ^^scott:::ABOVE:::IT:::ALL
 =================================================================================
 landed machine indeed
+---
+book writing strat??? keep them seperate until one launch
+---
+don't do mini launches.
 =================================================================================
 
 ATMXYZ
