@@ -394,7 +394,12 @@ proof
 drinks
 workin
 smile
-hmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+hmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm mmmm
 so 4 immediate ons
 
 =================================================================================
+the obvious oversight of current llms is that video games dont have any greater AI capacity..
+i think we would see it if they were dominating video games online?
+maybe not?
+i know that bots are supposed to be able to play against real players withs cucess
+-----------------------------------------------------------------------------------------
