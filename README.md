@@ -6,6 +6,9 @@ book writing strat??? keep them seperate until one launch
 ---
 don't do mini launches.
 =================================================================================
+as such:::
+
+=================================================================================
 
 ATMXYZ
 DIGITAL.DOME.INSERT...RULESET(forever):::
