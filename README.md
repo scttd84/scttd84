@@ -1,6 +1,6 @@
 ^^scott:::ABOVE:::IT:::ALL
 =================================================================================
-landed a digital machine indeed
+landed a digital machine indeed...
 ---
 book writing strat??? keep them seperate until one launch
 ---
@@ -20,6 +20,8 @@ is if:::bypass.when.u.can
 {[]}
 ATMXYZ
 DIGITAL.DOME.INSERT...RULESET(forever):::
+
+obv need to define ::: RULESET :::
 
 ^^^TRY to use website...when avail?
 ^^^TRY to use website...when avail?
@@ -49,13 +51,16 @@ world meta:::
 ---------------------------------------------------------------------------------
 =================================================================================
 =================================================================================
-min script??? --> what is the shortest possible script you can read out loud
-to clone your voice?
-min font??? --> what is the shortest possible script you can write to create an
-ai font?
+min script??? --> what is the shortest possible script you can read out loud to clone your voice?
+min font??? --> what is the shortest possible script you can write to create an ai font?
 
+=================================================================================
 ascii art generator:::
 makes ascii art
+
+---
+    make ascii stamper:::
+---
 
 =================================================================================
 overall goal right now:::
@@ -69,18 +74,34 @@ pop bubble of heartinabox777... expand to other repositories.
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
-wow strategy RIGHTNOW:::
-COMPLETED TIER QUESTLINE... game over
-ony complete
-mc/ony farm!!!
+wow strategy RIGHTNOW::: SEASON OF DISCOVER
+level enchanting
+continue bwl
+continue zg
+continue world bosses
 
-mc/ony
-herbin
-==================================================================================
+next patch///phase
+
+---
+
+COMPLETED LIST:::
+    TIER QUESTLINE... game over
+    ony complete
+    mc/ony farm!!!
+    bwl complete
+    zg comeplete
+    st complete
+
+herbin dropped for enchanting
 st over 
-herbin
 11th --> patch
 
+==================================================================================
+
+=================================================================================
+=================================================================================
+=================================================================================
+=================================================================================
 =================================================================================
 scotta.scottb.scottc.scottd...
 0.1.2.3.4.5.6.7.8.9.10.11.12.13.14.15.16.17.18.19.20
