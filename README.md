@@ -42,6 +42,13 @@ You can click the Preview link to take a look at your changes.
 --->
 =================================================================================
 =================================================================================
+---------------------------------------------------------------------------------
+world meta:::
+    remain calm... every type of mining is about to occur..
+    politics are locked for the time being... time to focus efforts on productive avenues
+---------------------------------------------------------------------------------
+=================================================================================
+=================================================================================
 min script??? --> what is the shortest possible script you can read out loud
 to clone your voice?
 min font??? --> what is the shortest possible script you can write to create an
