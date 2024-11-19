@@ -26,7 +26,7 @@ DIGITAL.DOME.INSERT...RULESET(forever):::
 ^^^TRY to use website...when avail?
 
 believe.what.u.can??
-
+=================================================================================
 - 👋 Hi, I’m scott!  :::@scttd84.smix
 - 👀 I’m interested in ... sharing,contracts,conflicts,configs.
 - 🌱 I’m currently learning ... how to build a space ship and pack it for long hauls!
@@ -34,12 +34,14 @@ believe.what.u.can??
 - 📫 How to reach me ... directly on github pref *(mostly no;;; however-->)
 - 😄 Pronouns: ... he him
 - ⚡ Fun fact: ... electricity is real
-
+=================================================================================
+=================================================================================
 <!---
 scttd84/scttd84 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-
+=================================================================================
+=================================================================================
 min script??? --> what is the shortest possible script you can read out loud
 to clone your voice?
 min font??? --> what is the shortest possible script you can write to create an
