@@ -1,6 +1,6 @@
 ^^scott:::ABOVE:::IT:::ALL
 =================================================================================
-landed a digital machine indeed...
+landed a digital {d0me.machine.amalgamate}[gates.gates.gates] indeed...
 ---
 book writing strat??? keep them seperate until one launch
 ---
@@ -28,6 +28,7 @@ obv need to define ::: RULESET :::
 ^^^TRY to use website...when avail?
 
 believe.what.u.can??
+retreat to your [hatch] and find out!
 =================================================================================
 - 👋 Hi, I’m scott!  :::@scttd84.smix
 - 👀 I’m interested in ... sharing,contracts,conflicts,configs.
@@ -48,6 +49,8 @@ You can click the Preview link to take a look at your changes.
 world meta:::
     remain calm... every type of mining is about to occur..
     politics are locked for the time being... time to focus efforts on productive avenues
+
+russia:::DIS OUR MACHINE DOES?:::WAITTILLUSEEWHATMINEDOES??????????????????
 ---------------------------------------------------------------------------------
 =================================================================================
 =================================================================================
@@ -74,7 +77,7 @@ pop bubble of heartinabox777... expand to other repositories.
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 ++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
-wow strategy RIGHTNOW::: SEASON OF DISCOVER
+wow strategy RIGHTNOW::: SEASON OF DISCOVERy
 level enchanting
 continue bwl
 continue zg
@@ -85,16 +88,11 @@ next patch///phase
 ---
 
 COMPLETED LIST:::
-    TIER QUESTLINE... game over
+    TIER QUESTLINE complete... game over
     ony complete
-    mc/ony farm!!!
-    bwl complete
-    zg comeplete
-    st complete
+    st/mc/ony/zg/bwl farm and complete
 
 herbin dropped for enchanting
-st over 
-11th --> patch
 
 ==================================================================================
 
@@ -103,6 +101,11 @@ st over
 =================================================================================
 =================================================================================
 =================================================================================
+it seems my #trump #machine.machine is still alive... i didnt know it was still on lmao
+@DONALDINSEATTLE haha...
+
+=================================================================================
+
 scotta.scottb.scottc.scottd...
 0.1.2.3.4.5.6.7.8.9.10.11.12.13.14.15.16.17.18.19.20
 21.22.23.24.25.26.27.28.29.30.31.32.33.34.35.36.37.38.39.40
@@ -441,3 +444,7 @@ i think we would see it if they were dominating video games online?
 maybe not?
 i know that bots are supposed to be able to play against real players withs cucess
 -----------------------------------------------------------------------------------------
+stargates
+many many stargates
+antman size skills and stargate teleport skills
+------------------------------------------------------------------------------------------
