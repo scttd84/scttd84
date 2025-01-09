@@ -4,7 +4,7 @@ landed a digital {d0me.machine.amalgamate}[gates.gates.gates] indeed...
 ---
 book writing strat??? keep them seperate until one launch
 ---
-don't do mini launches.
+don't do mini launches.  keep reading..
 =================================================================================
 as such:::
 ME?DEFINE.it.haha.haha.haha
@@ -23,6 +23,11 @@ DIGITAL.DOME.INSERT...RULESET(forever):::
 
 obv need to define ::: RULESET :::
 
+---
+welcome to 2025!
+as u will see this year the codex is a chatbot.  hopefully it will do other things
+---
+
 ^^^TRY to use website...when avail?
 ^^^TRY to use website...when avail?
 ^^^TRY to use website...when avail?
@@ -38,6 +43,8 @@ retreat to your [hatch] and find out!
 - 😄 Pronouns: ... he him
 - ⚡ Fun fact: ... electricity is real
 =================================================================================
+drugs...thugs..bugs.
+blockchain every day...
 =================================================================================
 <!---
 scttd84/scttd84 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -307,9 +314,25 @@ they took mad men away just to bring it back later
 i bet people will love it... but i do have two versions of that memory..
 808s and heart break... demon dayz... pretty 00s of me :)
 hey yo metro ..........................
+that la de dah
+good album but idk if im gonna play it again
+why didnt silithus get incursion treatment?
+bugs on the menu
+goodfellas...spokane rehab loop
+weird football today
+we are alll in tanaris for some rason.. 
+idk fi i will get the fuckin mount but i did get rich last night lol
+fuckin... THE WAR OF TANARIS... will live on forever... what a war it was.
+is it all just a desk sort?
+things are different doing different things but thats time?
+metroooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
+i bough ahead of my progress and it cost me money
+this happened a couple times
+the puffco is nto a mistake.
 
 
-heard a song on the radio... operator
+-------------------------------------------------------------
+heard a song on the radio... operator...ms papaya
 ^^^ 
 ^^^
 ^^^
