@@ -21,7 +21,7 @@ is if:::bypass.when.u.can
 ATMXYZ
 DIGITAL.DOME.INSERT...RULESET(forever):::
 
-obv need to define ::: RULESET :::
+obv need to define ::: RULESET ::: cops vs robbers ???
 ---
 welcome to 2025!
 as u will see this year the codex is a chatbot.  hopefully it will do other things
