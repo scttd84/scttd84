@@ -22,10 +22,21 @@ ATMXYZ
 DIGITAL.DOME.INSERT...RULESET(forever):::
 
 obv need to define ::: RULESET :::
-
 ---
 welcome to 2025!
 as u will see this year the codex is a chatbot.  hopefully it will do other things
+but as you notice we do not see these versions of AI doing any kind of gaming
+would be interesting to see a bot level a char to wow by learning wow...
+---
+also three threats in 3 nights... from guppies... for some reason something out 
+---
+there is causing attention they should not be doing that its dangerous for them.
+see above.
+
+
+TARGET???
+---
+attion.delivery.models...
 ---
 
 ^^^TRY to use website...when avail?
