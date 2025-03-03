@@ -5,6 +5,12 @@ landed a digital {d0me.machine.amalgamate}[gates.gates.gates] indeed...
 book writing strat??? keep them seperate until one launch
 ---
 don't do mini launches.  keep reading..
+---
+ISLAND LEVEL HOLDINGS []
+ISLAND LEVEL HOLDINGS :::::::::::::::::::::::: A ROBOT INTERFACE FOR ASSETS.$$${}
+ISLAND LEVEL HOLDINGS []
+---
+
 =================================================================================
 as such:::
 ME?DEFINE.it.haha.haha.haha
@@ -54,7 +60,8 @@ retreat to your [hatch] and find out!
 - 😄 Pronouns: ... he him
 - ⚡ Fun fact: ... electricity is real
 =================================================================================
-drugs...thugs..bugs.
+drugs...thugs..bugs...
+accessing the cat dispatch system?
 blockchain every day...
 =================================================================================
 <!---
@@ -482,3 +489,10 @@ stargates
 many many stargates
 antman size skills and stargate teleport skills
 ------------------------------------------------------------------------------------------
+day 1 donald!
+been some years.
+i know it could be bad
+im going to hope otherwise
+
+AMERICA!!!
+--------------------------------------------------
