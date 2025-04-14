@@ -1,6 +1,41 @@
 ^^scott:::ABOVE:::IT:::ALL
 =================================================================================
 landed a digital {d0me.machine.amalgamate}[gates.gates.gates] indeed...
+
+---
+$$$$$
+$    
+$    
+$$$$$
+    $
+    $
+$$$$$
+
+M M  
+MM MM  
+M M M M  
+M M M  
+M M  
+M M  
+M M  
+
+iiiii  
+  i    
+  i    
+  i    
+  i    
+  i    
+iiiii  
+
+
+x     x  
+ x   x   
+  x x    
+   x     
+  x x   
+ x   x  
+x     x  
+
 ---
 book writing strat??? keep them seperate until one launch
 ---
@@ -10,6 +45,21 @@ ISLAND LEVEL HOLDINGS []
 ISLAND LEVEL HOLDINGS :::::::::::::::::::::::: A ROBOT INTERFACE FOR ASSETS.$$${}
 ISLAND LEVEL HOLDINGS []
 ---
+alliwannadoisdrivehometoyou...
+so hard not to act reckless
+so hard not to see myside of it..
+double.confirm.double
+---
+pixel power button day...
+take case off or wait until next?
+---
+dope name ned... construct 3 triangles per day
+---
+
+WHAT DOES HE DO???
+THREE DIFFERENT PEOPLE SHOWING UP...
+-------------------------------------------------------------------
+###REPUBLIC OF ###AMERICA
 
 =================================================================================
 as such:::
