@@ -10,7 +10,7 @@ $$$$$
     $
     $
 $$$$$
-
+---
 M M  
 MM MM  
 M M M M  
@@ -18,7 +18,7 @@ M M M
 M M  
 M M  
 M M  
-
+---
 iiiii  
   i    
   i    
@@ -26,8 +26,7 @@ iiiii
   i    
   i    
 iiiii  
-
-
+---
 x     x  
  x   x   
   x x    
