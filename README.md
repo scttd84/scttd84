@@ -3,6 +3,7 @@
 landed a digital {d0me.machine.amalgamate}[gates.gates.gates] indeed...
 
 ---
+====================================================================================
 $$$$$
 $    
 $    
@@ -11,13 +12,13 @@ $$$$$
     $
 $$$$$
 ---
-M M  
+M     M  
 MM MM  
 M M M M  
-M M M  
-M M  
-M M  
-M M  
+M  M M    
+M       M  
+M       M  
+M       M  
 ---
 iiiii  
   i    
@@ -34,7 +35,9 @@ x     x
   x x   
  x   x  
 x     x  
-
+====================================================================================
+---
+HATCH.ESCAPE.ESCAPE.ESC.......................
 ---
 book writing strat??? keep them seperate until one launch
 ---
@@ -84,6 +87,8 @@ but as you notice we do not see these versions of AI doing any kind of gaming
 would be interesting to see a bot level a char to wow by learning wow...
 ---
 also three threats in 3 nights... from guppies... for some reason something out 
+---
+a story of ned..
 ---
 there is causing attention they should not be doing that its dangerous for them.
 see above.
