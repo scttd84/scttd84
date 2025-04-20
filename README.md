@@ -545,3 +545,17 @@ im going to hope otherwise
 
 AMERICA!!!
 --------------------------------------------------
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+star trek notes:::
+---
+
+STARDATE FARPOINT VS DENIB 4
+solve the mystery at farpoint?
+picard going a bit fast after q...
+
+----------
+maybe buy a new amazon kindle???
+could be good for both the account and reading!
+------
