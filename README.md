@@ -13,13 +13,13 @@ $$$$$
     $
 $$$$$
 ---
-M       M  
-M M   M M  
-M  M M  M  
-M   M   M    
-M       M  
-M       M  
-M       M  
+M     M  
+MM   MM  
+M M M M  
+M  M  M    
+M     M  
+M     M  
+M     M  
 ---
 iiiii  
   i    
@@ -40,6 +40,11 @@ x     x
 ====================================================================================
 ---
 HATCH.ESCAPE.ESCAPE.ESC.......................
+---
+backlog went well today.
+pen marked my pants and the comforter.
+blue 10
+
 ---
 book writing strat??? keep them seperate until one launch
 ---
@@ -64,6 +69,61 @@ WHAT DOES HE DO???
 THREE DIFFERENT PEOPLE SHOWING UP...
 -------------------------------------------------------------------
 ###REPUBLIC OF ###AMERICA
+-=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=-
+musk gone rogue?
+empire is empire yo.
+
+basically the audit came down to drugs
+i havent done any illeagal ones whatsoever
+
+they went down to the quote level about CLEAR...
+i was making fun of them i guess but i took it serious
+
+cannot believe a clear joke made it into court...
+theyre gonna get cleared out for saying that shit idk lol.
+
+"CLEARES THE VOICES"""
+
+if ur gonna fuckin stereotype my self im gonna do it back first.
+thats why im dangerous tho
+
+lots of dudes get it 
+lots of dudes want to call me a robber becauze of it
+that maybe true but idk how to self labelize so maybe its what they "would say"
+
+how it feels?
+well i question alot
+if theyre gonna just repeat what i said anyway i might as well make a better copy of it
+a copy of a copy of a copy?
+
+its all fuckin in that loop i guess... brt to figure out what makes a loop a loop?
+more than words.
+
+my stealth copter that powers the city... how i took over the submarines.
+
+
+
+
+
+
+-=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=--=-=-=-=-=-=-=-=-=-=-=-=-=-=-
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 =================================================================================
 as such:::
@@ -99,6 +159,10 @@ see above.
 TARGET???
 ---
 attion.delivery.models...
+when things dont turn out how you wanted to?
+don't let it frustrate you and sleep on it
+not gonna bother me anymore
+not control things 
 ---
 
 ^^^TRY to use website...when avail?
