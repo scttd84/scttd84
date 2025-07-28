@@ -41,6 +41,64 @@ x     x
 ---
 HATCH.ESCAPE.ESCAPE.ESC.......................
 ---
+hatch was already triggered upon return from california.
+things are worse than they seem.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+===
+
+
+
+
+
+
+
+
+---
 backlog went well today.
 pen marked my pants and the comforter.
 blue 10
